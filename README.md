@@ -1,4 +1,4 @@
-### Hi there 👋
+### I've never been to Mars, but I imagine it's quite lovely - CK 👋🌃🚀
 
 <!--
 **monalisasaperstein/monalisasaperstein** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
